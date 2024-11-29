@@ -1,1 +1,2 @@
-# Pert7_50421706
+Junaedi Samandias
+50421706
